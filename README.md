@@ -11,7 +11,7 @@
       </td>
     </tr>
   
-
+<img src="https://file.garden/aYcjB7qxDC3tLALZ/eggchan/eggchan_bounce.gif" width="90" align="center">
 
   $$other$$ $$accounts$$ㅤ:ㅤ [@100bottlesofglue](https://github.com/100bottlesofglue)ㅤ:ㅤ[@eviIfies](https://github.com/eviIfies)ㅤ
   <br>
