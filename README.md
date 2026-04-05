@@ -16,6 +16,6 @@
  <img src="https://komarev.com/ghpvc/?username=100bottlesofglue&style=for-the-badge&color=c2c5b0&label=✿" alt="profile view counter" align="left"> 
 
 $$other$$ $$accounts$$ㅤ:ㅤ [@100bottlesofglue](https://github.com/100bottlesofglue)ㅤ:ㅤ[@eviIfies](https://github.com/eviIfies)ㅤ<br>
-[O1](https://x.com/1urhearts/status/2036314600736694543?s=20) [O2](https://x.com/ikkeos/status/2032601291638063494?s=20) [O3](https://x.com/cgouo_/status/2024875045286469858)
+[O1](https://x.com/1urhearts/status/2036314600736694543?s=20) [O2](https://x.com/ikkeos/status/2032601291638063494?s=20) [O3](https://x.com/cgouo_/status/2024875466402979947/photo/1)
 
 **still not done..**
